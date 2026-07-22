@@ -1,1 +1,0 @@
-# progressao-merito
